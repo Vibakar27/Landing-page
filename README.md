@@ -1,0 +1,7 @@
+![Screenshot 2024-04-03 004740](https://github.com/Vibakar27/OIBSIP-Task1/assets/165372324/02297ea9-0922-4fed-95d7-f9f6d93224d7)
+![Screenshot 2024-04-03 004800](https://github.com/Vibakar27/OIBSIP-Task1/assets/165372324/382e9714-86ea-405b-9786-99c2428b56bc)
+![Screenshot 2024-04-03 004820](https://github.com/Vibakar27/OIBSIP-Task1/assets/165372324/47a2557e-98fc-43f9-b055-41692070e113)
+![Screenshot 2024-04-03 004836](https://github.com/Vibakar27/OIBSIP-Task1/assets/165372324/00d1c44f-2265-47fc-99db-2d6d8c169801)
+![Screenshot 2024-04-03 004854](https://github.com/Vibakar27/OIBSIP-Task1/assets/165372324/e435d52e-b24f-4897-9a01-58ef93cb7368)
+![Screenshot 2024-04-03 004907](https://github.com/Vibakar27/OIBSIP-Task1/assets/165372324/45873646-307c-49cc-99e6-374e21237568)
+![Screenshot 2024-04-03 004952](https://github.com/Vibakar27/OIBSIP-Task1/assets/165372324/d100add3-f5f3-419d-8735-ece989a339da)
